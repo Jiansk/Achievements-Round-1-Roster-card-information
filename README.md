@@ -14,4 +14,4 @@ Contact Links:
 
 Socials:
 * https://github.com/Jiansk
-* @gianvllanueva
+* https://www.instagram.com/gianvllanueva/
